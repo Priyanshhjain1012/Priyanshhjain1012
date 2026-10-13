@@ -62,4 +62,4 @@ Dr. A.P.J. Abdul Kalam Technical University (AKTU), Lucknow
 
 ---
 
-**Contact:** [Email](jainpriyansh1012@gmail.com) · [LinkedIn](www.linkedin.com/in/priyanshujain1012)
+**Contact:** [Email](jainpriyansh1012@gmail.com) · [LinkedIn](https://www.linkedin.com/in/priyanshujain1012/)
